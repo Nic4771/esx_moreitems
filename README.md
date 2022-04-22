@@ -7,4 +7,4 @@ moreitems you can use in your server :) Made By Nic#4771,
 
 DM Me on discord Nic#4771 for help, im dutch :)
 
-[Sorry for the bad English :)]
+Sorry for the bad English :)
